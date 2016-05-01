@@ -1,2 +1,2 @@
 # mystudy
-juststudy
+just 4 my study
